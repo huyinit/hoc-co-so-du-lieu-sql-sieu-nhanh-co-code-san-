@@ -8,4 +8,4 @@ fb: https://www.facebook.com/huyinit13
 
 **Danh sách phát youtube bài giảng : https://www.youtube.com/playlist?list=PLDYXQL9eThN4fvrP8J0ASHnxSKJFtkU-Q**
 
-youtube vlog :https://www.youtube.com/channel/UCgktVJ2PAuA3zHSR1A-K20w
+youtube vlog : https://www.youtube.com/channel/UCskOQJ8MIQXTAQ_jGryJNcQ
